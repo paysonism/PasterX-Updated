@@ -2,9 +2,9 @@
 
 PasterX Updated by Payson Holmes
 
-[DISCORD](https://dsc.gg/subzerofn)[DISCORD](https://dsc.gg/subzerofn)[DISCORD](https://dsc.gg/subzerofn)[DISCORD](https://dsc.gg/subzerofn)[DISCORD](https://dsc.gg/subzerofn)[DISCORD](https://dsc.gg/subzerofn)[DISCORD](https://dsc.gg/subzerofn)[DISCORD](https://dsc.gg/subzerofn)[DISCORD](https://dsc.gg/subzerofn)[DISCORD](https://dsc.gg/subzerofn)[DISCORD](https://dsc.gg/subzerofn)[DISCORD](https://dsc.gg/subzerofn)[DISCORD](https://dsc.gg/subzerofn)[DISCORD](https://dsc.gg/subzerofn)[DISCORD](https://dsc.gg/subzerofn)[DISCORD](https://dsc.gg/subzerofn)
+[DISCORD](https://dsc.gg/subzerofn) [DISCORD](https://dsc.gg/subzerofn) [DISCORD](https://dsc.gg/subzerofn) [DISCORD](https://dsc.gg/subzerofn) [DISCORD](https://dsc.gg/subzerofn) [DISCORD](https://dsc.gg/subzerofn) [DISCORD](https://dsc.gg/subzerofn) [DISCORD](https://dsc.gg/subzerofn) [DISCORD](https://dsc.gg/subzerofn) [DISCORD](https://dsc.gg/subzerofn) [DISCORD](https://dsc.gg/subzerofn) [DISCORD](https://dsc.gg/subzerofn) [DISCORD](https://dsc.gg/subzerofn) 
 
-join the discord :)
+if you couldn't tell, you should probably join the discord :)
 
 # What this is
 
@@ -22,6 +22,6 @@ If you cant get it to work you can always dm me on discord @paysonism
 
 Updated and fixed by Payson Holmes
 
-PasterX - PasterBizzy
+PasterX - X (kayflocka) and no PasterBizzy did not make it
 
 Thanks for all of your support.
