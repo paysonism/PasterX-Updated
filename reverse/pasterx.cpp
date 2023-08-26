@@ -1116,6 +1116,7 @@ menu_:
 
 
 	Sleep(4500);
+	printf((" Updated by Payson Holmes - .gg/subzerofn\n\n"))
 	printf((" [1] Load Cheat\n [2] Load Driver\n\n > "));
 	std::cin >> choice;
 	switch (choice)
